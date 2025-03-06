@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Boss-MOB-Slayer
-- 👀 I’m interested in ... coding
+- 👀 I’m interested in ... 3D Design
 - 🌱 I’m currently learning ... English and Math
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
